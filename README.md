@@ -2,8 +2,6 @@
 
 My email : 👉baptiste.cournault@gmail.com👈
 
-Video link : 👉https://share.vidyard.com/watch/h6Epca8CNMdVnYu8GcWnit?👈
-
 ![image](https://user-images.githubusercontent.com/106257819/197458154-905fe132-749e-4ad6-8833-ef7609a50f02.png)
 
 ## Challenge : predict conversions 🏆🏆
